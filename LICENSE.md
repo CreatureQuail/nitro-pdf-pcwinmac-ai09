@@ -1,4 +1,4 @@
-# 
+# Open Source Nitro PDF scripts for Mac OS | Secure Nitro PDF scripts for PC Windows. Featuring tax planning and automatic sync — optimized for maximum performance on every platform.
 
 
 
